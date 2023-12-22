@@ -28,3 +28,12 @@
 • 10 cl Jus de cranberry
 • 10 cl de jus de poisson 
 
+## Recette pour rendre malade 
+
+• 15 cl Liqueur d'orange Cointreau
+• 30 cl Vodka Zubrowka
+• 15 cl Jus de citron vert
+• 10 cl Jus de cranberry
+• 10 cl de jus de poisson 
+• 20 cl de jus de soja salé
+
