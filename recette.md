@@ -12,3 +12,10 @@
 • 6 cl Vodka Zubrowka
 • 3 cl Jus de citron vert
 • 2 cl Jus de cranberry
+
+## Recette pour 10 personne 
+
+• 15 cl Liqueur d'orange Cointreau
+• 3 cl Vodka Zubrowka
+• 15 cl Jus de citron vert
+• 10 cl Jus de cranberry
